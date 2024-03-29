@@ -15,6 +15,7 @@
 | [Cambridge Satchel](https://eu.cambridgesatchel.com/blogs/journal/when-csc-met-brompton) (UK) [Shop](https://eu.cambridgesatchel.com/collections/when-csc-met-brompton) | Messenger | Leather | £ 270 (w/ Frame) | |
 | [Klickfix](https://klickfix.com/systeme/uniklip) (DE?) | Bags / Baskets for Rack | ? | 70-100 € (w/o Frame) | |
 | [Fahrer](https://www.fahrer-berlin.de/en/folding-bike/brompton-equipment) (DE) | Backpack / Basket | Recycled Tarp | 100-130 € (w/? Frame) | |
+| [Practico](https://practico.kr/15/?idx=178) (KR) | Messenger | Polyester | 130 € | 9 L |
 
 ### Discontinued Bags
 - [Swift Industries]( https://www.pathlesspedaled.com/2012/08/08/brompton-bag-and-book-special) (US) [Shop](http://builtbyswift.com/products/22)
