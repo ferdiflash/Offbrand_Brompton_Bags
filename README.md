@@ -16,7 +16,8 @@
 | [Klickfix](https://klickfix.com/systeme/uniklip) (DE?) | Bags / Baskets for Rack | ? | 70-100 € (w/o Frame) | |
 | [Fahrer](https://www.fahrer-berlin.de/en/products/bike-bags/front-basket-for-brompton/a-2096) (DE) | Backpack / Basket | Recycled Tarp | 100-130 € (w/? Frame) | |
 | [Practico](https://practico.kr/15/?idx=178) (KR) | Messenger | Polyester | 130 € | 9 L |
+| [Rhinowalk](https://rhinowalk.com/en-de/products/rhinowalk-20l-bike-pannier-bag-waterproof-bicycle-rear-seat-trunk-bag-for-cycling-bicycling-traveling-riding) | Pannier Bag | Poly | 60€ | 20L |
 
 ### Discontinued Bags
 - [Swift Industries]( https://www.pathlesspedaled.com/2012/08/08/brompton-bag-and-book-special) (US) [Shop](http://builtbyswift.com/products/22)
-- [Freitag](https://www.freitag.ch/en/f748) (CH) | Backpack | Tarp  | ~350 € (w/ Frame)~ Discontinued
+- [Freitag](https://www.freitag.ch/en/f748) (CH) | Backpack | Tarp  | ~350 € (w/ Frame)~ Discontinued | 19L
